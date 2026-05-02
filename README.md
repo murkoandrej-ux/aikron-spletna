@@ -1,1 +1,1 @@
-# aikron-spletna
+# aikron-spletna.
